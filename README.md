@@ -1,1 +1,1 @@
-# symmetrical-tribble
+I am currently a Teacher looking for a career change. I love what I do as a Teacher making a change in the lives of children who have only the adults in their lives to trust. However this does not pay the bills well nor does it take care of the family like I would want it to.
